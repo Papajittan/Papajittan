@@ -1,4 +1,4 @@
 ## I was a mediocre programmer, now I'm not even one.
-### also I love Yuki!
+### also I love Bocchi!
 #### (I'm a functional member of society (trust me (I'm delusional)))
-![alt text](https://cdn.discordapp.com/attachments/876454194830262282/1274414076495396944/452612654_1257589511895387_7421087477374421815_n.jpg?ex=66c22a19&is=66c0d899&hm=9c829fd7ac556b305aaf9f399b942cfe26ef02bd9e154f5e706cc12e8145c3f8&)
+![alt text](https://i.pinimg.com/originals/5a/89/68/5a8968f81ff3b1738c2a6389cdfb3935.jpg)
